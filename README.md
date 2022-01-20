@@ -1,3 +1,3 @@
 - 👋 olá eu sou Emily rodrigues
-- 💞️ Estou cursando informáticapara internet
+- 💞️ Estou cursando informática para internet
 
